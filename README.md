@@ -44,3 +44,7 @@ Download Free Canva Templates by [Mositron](https://mositron.com)
 - [Note Card](https://mositron.com/note-card) 
 - [Twitter Header](https://mositron.com/twitter-header) 
 - [Sticker](https://mositron.com/sticker)
+
+More canva templates
+- [Moko22](https://moko22.com)
+- [เทมเพลตไทย](https://siamtemplate.com)
